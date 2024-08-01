@@ -8,6 +8,5 @@
 ## PAIA
 
 
-![](https://media.tenor.com/O8gy1gagVDoAAAAi/one-piece-pixel.gif) 
+![](https://media1.tenor.com/m/VnoFot8xHqwAAAAC/darling-in-the-franxx-zero-two.gif) 
 
-![](https://media1.tenor.com/m/VnoFot8xHqwAAAAC/darling-in-the-franxx-zero-two.gifhttps://media.tenor.com/O8gy1gagVDoAAAAi/one-piece-pixel.gif)
