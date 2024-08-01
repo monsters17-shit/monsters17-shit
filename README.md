@@ -8,3 +8,4 @@
 ## PAIA
 
 ![](https://media1.tenor.com/m/GdiosKmodVIAAAAd/lolis-dance.gif)![](https://media.tenor.com/xE9m5-LkBeEAAAAi/anime-kanna.gif)![](https://media1.tenor.com/m/n80SahjQavAAAAAd/kenosbynpesta.gif)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reddit.com%2Fr%2FAnimemes%2Fcomments%2F9xae8h%2Ffreedom%2F&psig=AOvVaw1I0RG_3R-6pM-fASZSLBed&ust=1722635039820000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCLiQlfDh1IcDFQAAAAAdAAAAABAo)
